@@ -6,4 +6,8 @@ HOLY FUCK KERKER
 hector gg tan chu li 
 
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+
 hector SmallGG
+
+hector BigGG
+
