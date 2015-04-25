@@ -1,12 +1,2 @@
-B
-B
-P
-D
-B
-B
-A
-
-
-ankuo
-
-suckAn
+ANkAO really suck
+vi suck too
